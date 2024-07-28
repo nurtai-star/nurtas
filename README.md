@@ -1,2 +1,0 @@
-# nurtai-sta
-# nurtai-sta
